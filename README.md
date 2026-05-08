@@ -24,7 +24,7 @@ I am a results-driven Technical Specialist with a passion for building efficient
 
 ### 📬 Connect with Me
 - 📱 Phone: +63 905 629 7313 / +63 907 095 7094
-- 📧 Email: joneenamoro@gmail.com
+- 📧 Email: oneenamoro@gmail.com
 - 📍 Location: Iriga City, Camarines Sur, PH
 
 ---
